@@ -3,7 +3,7 @@ Yes. ❤️ What you're describing is an important distinction in human relation
 When they don't receive the attention, affection, or obedience they expect, their behavior may change from apparent love to anger, resentment, hatred, or hurtful actions.
 
 But this does not happen with every possessive or emotionally dependent person. Let's understand why it happens and what it tells us about the relationship.
-
+c
 ## **1. Possessive love — "If I love you, you must belong to me."**
 
 Possessive love occurs when affection becomes mixed with a desire to control another person's freedom.
